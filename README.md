@@ -9,3 +9,4 @@
 - 📫 How to reach me: sharmabhmi@gmail.com
 
 
+[![An image of @bhumika9's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/bhumika9)](https://holopin.io/@bhumika9)
